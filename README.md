@@ -1,0 +1,1 @@
+# Mecsek-Menedzsment-Kft-Claude-Design-v1
